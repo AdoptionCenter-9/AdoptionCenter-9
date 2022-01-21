@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Leex
+- 👀 I’m interested in ... games, sports, discord
+- 🌱 I’m currently learning I dont even remember
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me : Discord ✯ 𝕃𝕖𝕖𝕩 ✯#4576
